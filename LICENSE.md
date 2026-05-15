@@ -1,4 +1,4 @@
-# 
+# advanced Shotcut for PC | Shotcut for Windows Preset | export-presets + noise-reduction offers the most advanced Shotcut for PC | Shotcut for Windows preset, with export-presets
 
 
 
